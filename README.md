@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @deltonix
+- 👀 I’m interested in mostly in computer and coding, technology
+- - 🌱 I’m currently learning chemistry and biology
+- 📫 How to reach me danijelbalic8@gmail.com
